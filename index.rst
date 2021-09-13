@@ -54,7 +54,7 @@ Comme pour le chapitre 2, Amazon Prime Video proposera After chapitre 3 à ses a
 
 **L'est l'endroit de streaming gratuit pour regarder le film After chapitre 3 en VF ou en VO**
 
-Où puis-je regardé le film After chapitre 3 en streaming gratuit ? Vous allez probablement me dire que tout le monde n’a pas les moyens de dépenser de l’argent chaque mois pour se faire plaisir à regarder des séries ou des films. 
+Où puis-je regardé `le film After chapitre 3 en streaming <https://voici-after-chapitre3.readthedocs.io/en/latest/>`_ gratuit ? Vous allez probablement me dire que tout le monde n’a pas les moyens de dépenser de l’argent chaque mois pour se faire plaisir à regarder des séries ou des films. 
 
 C’est effectivement vrai. Alors que de nombreuses personnes rencontrent beaucoup de mal à payer ses factures, son essence pour se déplacer, boucler sa fin de mois et manger correctement, il est sûr que de payer pour le film After chapitre 3 n’est pas à la portée de tout le monde.
 
